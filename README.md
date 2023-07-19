@@ -3,7 +3,7 @@
 <img src="https://cdn.discordapp.com/attachments/1082540281624285254/1130800450564788305/NewCanvas1sdd.png" width="420">
 <h1 align="center"> <img src="https://kingcrimson.crd.co/assets/images/gallery05/be1209c9.gif?v=c96189b9"> Do NOT Interact / Before You Interact <img src="https://kingcrimson.crd.co/assets/images/gallery16/2884da48.gif?v=c96189b9"> </h1>
 <p align="center">
- <img src="https://kingcrimson.crd.co/assets/images/gallery01/964e63bd.gif?v=c96189b9"> Anyone under 16, I prefer friends closer in age range. 
+ <img src="https://kingcrimson.crd.co/assets/images/gallery01/964e63bd.gif?v=c96189b9"> Anyone under 18, I prefer friends closer in age range. 
 <p align="center">
 If you thrive off making others miserable.  <img src="https://kingcrimson.crd.co/assets/images/gallery05/862430cb.gif?v=c96189b9">
 <p align="center">
