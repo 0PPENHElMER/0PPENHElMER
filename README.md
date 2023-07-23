@@ -21,6 +21,6 @@ Do NOT copy or inspo my skins. Me and my friends will call you out for doing it.
 <p align="center">
 <img src="https://kingcrimson.crd.co/assets/images/gallery16/8f500422.gif?v=ec2840be"> Skins of my kins please dni, I consider then to be me irl. Exceptions may vary.
 <p align="center">
-Yes, I am a stalking survivor/victim, if you have an issue with how I cope, I do not care. <img src="https://kingcrimson.crd.co/assets/images/gallery05/cd2c7faf.gif?v=ec2840be">
+Yes, I am a stalking & grooming survivor/victim, if you have an issue with how I cope, I do not care. <img src="https://kingcrimson.crd.co/assets/images/gallery05/cd2c7faf.gif?v=ec2840be">
 <p align="center">
 </p> 
